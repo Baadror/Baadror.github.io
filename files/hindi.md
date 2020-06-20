@@ -3,7 +3,11 @@ Bhimaram Chohtan 1856 He came in the famine year. He stayed primarily near the m
 
 नायका राम (1960-2038,68 साल ) भीमा राम के बड़े पुत्र थे। नयका राम बोलने में माहिर थे वो साख बोला  करते थे।  नयका राम के बेटे बाधरा राम और बेटी धुड़ी और पुत्र फताराम और पुत्री रेखी में उनकी बोली की झलक देखने को मिलती हैं।  नयका राम एक बार मूल सिंह नाम के भाटी के यह उम्मीद लेके गए थे की वो उन्हें ऊँठ देंगे पर उन्हें ऊँठ नहीं  मिला, वो मूल सिंह से नाराज हो गए।  मूल सिंह के पांच पुत्र थे।  नायका राम ने बाद में ऊँठ की जगह ऊंटनी खरीदी और इन सारी बात को अपनी साख में गाया 
 
+पहले टाइम में बुजुर्ग लोग राजपूतो के काम किया करते थे। बदले में राजपूत लोग खाना खिलाना और सामान और अनाज देके इनके मेघवालो को खुश रखा करते थे। एक बार नायका राम ने दिवाली में राजपूतो की कोटड़ी में दस्तक दी पर इस बार राजपूतो ने इन्हे कुछ न दिया। 
+
 Nayaka Ram (1960-2038,68 years) was the elder son of Bhima Ram. Nayaka Ram was expert in speaking, he used to speak credibility. Nayaka Ram's son Badhara Ram and daughter Dhudi and sons Fataram and daughter Rekhi get a glimpse of their dialect. Nayaka Ram once had the hope of Bhati named Mool Singh that he would give him a camel but he did not get a camel, he became angry with Mool Singh. Mool Singh had five sons. Nayaka Ram later bought a camel instead of a camel and sang all these things in his credit
+
+In the earlier times, elderly people used to work as Rajputs. In return, the Rajputs used to feed their food and give their goods and grains to keep their cloud dwellers happy. Once Nayaka Ram knocked in the Kotdi of Rajputs in Diwali, but this time Rajputs did not give them anything.
 
 
 जुगता राम (1975-2023 ,48 साल ) बहुत ही मेहनती थे, चोहटन  पक्का कमरा बनाया बाकी पड़ोसियों से पहले। जुगता राम के वहा गाये थी और आस पास के लोग यहां इनके घर खाना खाते और बाते करने आते थे।  सांगा राम जुगता राम को "खपतिया" बताते हैं।  इन्होने उदा राम के घर के पास बाँध बनाया था और हर 
